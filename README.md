@@ -1,0 +1,1 @@
+# skracanie-linkow
